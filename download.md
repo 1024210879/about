@@ -8,14 +8,14 @@
 * 专业版可每次刷新流量，达到永久破解的目的
 * 加入DNS优化，解决部分地区无法连上的问题
 
-* 1下载https://ppt.cc/fSfsLx
+* 1下载http://t.cn/Ebc3lrA
 * 2下载https://rebrand.ly/839e7
 * 3下载https://tinyurl.com/ybxsjc4n
 
 
 若闪退请暂时使用以下旧版本，待修复再更新
 
-* 4.7.9版本：下载https://ppt.cc/fdFjHx
-* 4.6.2版本：下载 https://ppt.cc/fkNdDx
+* 4.7.9版本：下载 http://t.cn/E7Gr4c5
+* 4.6.2版本：下载 http://t.cn/EPih08W
 
 
