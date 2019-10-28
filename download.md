@@ -8,9 +8,9 @@
 * 专业版可每次刷新流量，达到永久破解的目的
 * 加入DNS优化，解决部分地区无法连上的问题
 
-* 1下载http://t.cn/Ebc3lrA
-* 2下载https://rebrand.ly/839e7
-* 3下载https://tinyurl.com/ybxsjc4n
+* 1下载http://t.cn/Ai19GYH2
+* 2下载http://t.cn/Ai1956tC
+* 3下载http://t.cn/Ai195eSd
 
 
 若闪退请暂时使用以下旧版本，待修复再更新
